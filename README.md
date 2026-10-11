@@ -1,0 +1,2 @@
+# premium-raised-band-001-raised-band-sewing-cord-laci
+Built for heritage-leather-bookbinding professionals who are tired of spending hours building a system before you can actually use it.  Mobile-optimized for Notion iOS and Android — works everywhere you work. Fully documented: every section explained so you know exactly what to customize.  ## What's Included  - Raised Band Sewing &amp; Cord Lacing — fu
